@@ -9,7 +9,7 @@
 
 - 📫 Reach me at: **nikhilahuja.ggits@gmail.com**
 
-- 📄 Know about my experiences [https://github.com/Ralphie99/Ralphie99/blob/main/Nikhil_A_CV.pdf](https://github.com/Ralphie99/Ralphie99/blob/main/Nikhil_A_CV.pdf)
+- 📄 Know about my experiences [https://github.com/ralphie97/ralphie97/blob/main/Nikhil_A_CV.pdf](https://github.com/ralphie97/ralphie97/blob/main/Nikhil_A_CV.pdf)
 
 - ⚡ Fun fact **My gaming name is Ralphie**
 
